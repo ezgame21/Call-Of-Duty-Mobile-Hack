@@ -16,4 +16,4 @@ Hacking Call of Duty Mobile is very easy, you will not need any guide or apk, ju
 What are the boxes in Call of Duty Mobile for? The Call of Duty boxes are an element that we can acquire for coins or real money in the virtual store with which we can unlock premium content of the game in a random way. There are three types of boxes that vary according to the price and quality of each one, the better the quality of the box, the greater the probability that we will get more rare and epic content
 
 
-GO TO HACK --->>>>    https://ezgame21.com/call-of-duty-mobile-hack/
+<center><a href="https://ezgame21.com/call-of-duty-mobile-hack/"><img src="https://ezgame21.com/wp-content/uploads/2021/01/button-43-300x110.png" alt="" width="300" height="110" /></a></center>
