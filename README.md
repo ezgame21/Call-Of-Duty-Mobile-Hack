@@ -1,3 +1,5 @@
+<img class="aligncenter wp-image-76 size-large" src="https://ezgame21.com/wp-content/uploads/2021/01/Capture-1024x576.png" alt="" width="1024" height="576" />
+
 Call Of Duty Mobile Hack
 
 This official Call of Duty game has been designed exclusively for mobile devices. You can play on the maps and in iconic multiplayer modes anytime, anywhere. 100-player Battle Royale? 5c5 Quick Team Duel? Sniper Battle? The free Call of Duty Mobile Hack game has it all In this game you can enjoy a true console-quality gaming experience on your mobile phone, with customizable controls and voice and text chat, plus 3D graphics and incredible sound.
